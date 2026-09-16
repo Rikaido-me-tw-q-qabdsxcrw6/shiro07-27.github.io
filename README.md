@@ -1,1 +1,0 @@
-# shiro07-27.github.io
